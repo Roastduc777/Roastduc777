@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Roastduc777
-- 👀 I’m interested in warthunder
+- 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on how to escape from reality
 - 📫 How to reach me:  pigeon
